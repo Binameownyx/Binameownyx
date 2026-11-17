@@ -33,10 +33,7 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
        $\color{#ffe4ef}{\textsf{Dn copy/cover, pls... meow. }}$ <br>
        <img width="80" height="80" alt="Tumblr_l_1132705557206283" src="https://github.com/user-attachments/assets/8d441ede-b6fc-487f-bbc5-548a4db18e5a" />
        $\color{#ffd5e3}{\textsf{Support tier 4 star}}$ <br>
-
-
-
-      
+  
 - - - 
 
 <img width="500" height="200" alt="7efa1fb89eab76ff7a0d36490fdfde90" src="https://github.com/user-attachments/assets/4093a30d-ad06-4235-9461-70fc1167d781" />
