@@ -46,7 +46,5 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
 - - - 
 
 <img width="500" height="200" alt="7efa1fb89eab76ff7a0d36490fdfde90" src="https://github.com/user-attachments/assets/4093a30d-ad06-4235-9461-70fc1167d781" />
-
 <p align="center">
-    
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=132676&center=true&vCenter=true&width=1200&lines=don't+leave+me+alone...+I+miss+u" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=132676&center=true&vCenter=true&width=1200&lines=don't+leave+me+alone...+I+miss+u" />
