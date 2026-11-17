@@ -1,7 +1,6 @@
 ## Meow. (I'm not finished lol.) 
 
 <p align="center">
-    
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=#ffe4ef&center=true&vCenter=true&width=1200&lines=I+love+you+forever..." />
    <img width="736" height="736" alt="f5145402e08e868502b6556e51b4d4bd" src="https://github.com/user-attachments/assets/c9499977-936c-44b8-9353-fa05de03fd68" />
 
@@ -16,6 +15,7 @@
       $\color{#ffe4ef}{\textsf{Columbina tfc kin}}$ <br>
       $\color{#ffd5e3}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
       <br>
+       <img width="1280" height="102" alt="Tumblr_l_1131884975827157" src="https://github.com/user-attachments/assets/bc79ef90-5bae-4424-910e-3e06baa376ad" />
       $\color{#ffe4ef}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
 
 
