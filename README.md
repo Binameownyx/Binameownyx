@@ -31,10 +31,11 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       $\color{#ffe4ef}{\textsf{⤥ DNI ⤦}}$
       <br>
       <img width="500" height="252" alt="4469668a63b2263349474ecc3854fa58" src="https://github.com/user-attachments/assets/155e2c2a-485b-4601-bb51-8290626868bc" />
-      <img width="388" height="228" alt="Tumblr_l_656223052381958" src="https://github.com/user-attachments/assets/425f9280-dd12-4d37-b104-942bb31fd57e" />
+      <img width="662" height="442" alt="Tumblr_l_1132745230530593" src="https://github.com/user-attachments/assets/920d5996-ec50-4e4b-9e12-fefbb8ec2e3c" />
        $\color{#ffe4ef}{\textsf{Cuddle+hug freely}}$ <br>
        <img width="800" height="456" alt="Tumblr_l_1132292422011720" src="https://github.com/user-attachments/assets/32478976-a261-4c05-8bed-e15f869602cc" />
        $\color{#ffe4ef}{\textsf{Dn copy/cover, pls... meow. }}$ <br>
+       <img width="80" height="80" alt="Tumblr_l_1132705557206283" src="https://github.com/user-attachments/assets/8d441ede-b6fc-487f-bbc5-548a4db18e5a" />
        $\color{#ffd5e3}{\textsf{Support tier 4 star}}$ <br>
 
 
