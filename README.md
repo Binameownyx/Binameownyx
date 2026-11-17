@@ -1,4 +1,4 @@
-## Meow. (I'm not finished lol.) 
+## Meow.
 
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ffd5e3&center=true&vCenter=true&width=1200&lines=I+will+meow+you+jk+ily+soooo+much" />
