@@ -32,10 +32,10 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
        <img width="800" height="456" alt="Tumblr_l_1132292422011720" src="https://github.com/user-attachments/assets/32478976-a261-4c05-8bed-e15f869602cc" />
        $\color{#ffe4ef}{\textsf{Dn copy/cover, pls... meow. }}$ <br>
        <img width="80" height="80" alt="Tumblr_l_1132705557206283" src="https://github.com/user-attachments/assets/8d441ede-b6fc-487f-bbc5-548a4db18e5a" />
-       $\color{#ffd5e3}{\textsf{Support tier 4 star}}$ <br>
-  
-- - - 
+       $\color{#ffd5e3}{\textsf{Support tier 4 star}}$ <b>
+       <img width="500" height="200" alt="7efa1fb89eab76ff7a0d36490fdfde90" src="https://github.com/user-attachments/assets/4093a30d-ad06-4235-9461-70fc1167d781" />
 
-<img width="500" height="200" alt="7efa1fb89eab76ff7a0d36490fdfde90" src="https://github.com/user-attachments/assets/4093a30d-ad06-4235-9461-70fc1167d781" />
-<p align="center">
+      
+- - -
+ <p align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ffd5e3&center=true&vCenter=true&width=1200&lines=don't+leave+me+alone...+I+miss+u" />
