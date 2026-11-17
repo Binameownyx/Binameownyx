@@ -3,9 +3,8 @@
   </tr>
     <th>
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=#ffe4ef&center=true&vCenter=true&width=1200&lines=I+love+you+forever..." />
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ffd5e3&center=true&vCenter=true&width=1200&lines=I+will+meow+you+jk+ily+soooo+much" />
       $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
-      <br>
       $\color{#ffd5e3}{\textsf{ᨶ႒ᩚnyx🎀}}$ <br>
       $\color{#ffe4ef}{\textsf{𝘚𝘩𝘦/𝘏𝘦𝘳}}$ <br>
       $\color{#ffe4ef}{\textsf{Columbina tfc kin}}$ <br>
