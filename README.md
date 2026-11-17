@@ -27,6 +27,7 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       $\color{#ffe4ef}{\textsf{⤥ DNI ⤦}}$
       <br>
       <img width="500" height="252" alt="4469668a63b2263349474ecc3854fa58" src="https://github.com/user-attachments/assets/155e2c2a-485b-4601-bb51-8290626868bc" />
+      $\color{#ffd5e3}{\textsf{pls read this: be kind! don't copy/cover my skins pls, do not calling me darling or egirl!tysm}}$ <br>
       <img width="662" height="442" alt="Tumblr_l_1132745230530593" src="https://github.com/user-attachments/assets/920d5996-ec50-4e4b-9e12-fefbb8ec2e3c" />
        $\color{#ffe4ef}{\textsf{Cuddle+hug freely}}$ <br>
        <img width="800" height="456" alt="Tumblr_l_1132292422011720" src="https://github.com/user-attachments/assets/32478976-a261-4c05-8bed-e15f869602cc" />
