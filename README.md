@@ -3,7 +3,6 @@
 <p align="center">
     
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=#ffe4ef&center=true&vCenter=true&width=1200&lines=I+love+you+forever..." />
-  
    <img width="736" height="736" alt="f5145402e08e868502b6556e51b4d4bd" src="https://github.com/user-attachments/assets/c9499977-936c-44b8-9353-fa05de03fd68" />
 
 
