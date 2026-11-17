@@ -11,12 +11,12 @@
     <th>
       $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
       <br>
-      $\color{#921616}{\textsf{ᨶ႒ᩚnyx🎀}}$ <br>
-      $\color{#132676}{\textsf{𝘚𝘩𝘦/𝘏𝘦𝘳}}$ <br>
-      $\color{#921616}{\textsf{Columbina tfc kin}}$ <br>
-      $\color{#132676}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
+      $\color{#ffd5e3}{\textsf{ᨶ႒ᩚnyx🎀}}$ <br>
+      $\color{#ffe4ef}{\textsf{𝘚𝘩𝘦/𝘏𝘦𝘳}}$ <br>
+      $\color{#ffe4ef}{\textsf{Columbina tfc kin}}$ <br>
+      $\color{#ffd5e3}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
       <br>
-      $\color{#921616}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
+      $\color{#ffe4ef}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
 
 
 [**PRONOUNS.CCএ**](https://pronouns.cc/@Nyxmeow) 
@@ -24,20 +24,19 @@
 $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       <br>
       $\color{#303030}{\textsf{PEOPLE WHO SHIPS}}$ <br>
-      $\color{#921616}{\textsf{Piexmc,harlexmc,jesterxmc,piexharle,binaxmc, harlexbina}}$ <br>
-      $\color{#921616}{\textsf{BASIC DNI CRITERIA.}}$ <br>
-      $\color{#132676}{\textsf{SHIP/SYSTEM DISCOURSE.}}$ <br>
-      $\color{#921616}{\textsf{Dnc my skin pls and TYSM <3}}$ <br>
+      $\color{#ffe4ef}{\textsf{Piexmc,harlexmc,jesterxmc,piexharle,binaxmc, harlexbina}}$ <br>
+      $\color{#ffe4ef}{\textsf{BASIC DNI CRITERIA.}}$ <br>
+      $\color{#ffd5e3}{\textsf{Dnc my skin pls and TYSM <3}}$ <br>
       <br
-      $\color{#132676}{\textsf{WORK/SCHOOL AND}}$ <br>
-      $\color{#921616}{\textsf{⤥ DNI ⤦}}$
+      $\color{#ffd5e3}{\textsf{WORK/SCHOOL AND}}$ <br>
+      $\color{#ffe4ef}{\textsf{⤥ DNI ⤦}}$
       <br>
       <img width="500" height="252" alt="4469668a63b2263349474ecc3854fa58" src="https://github.com/user-attachments/assets/155e2c2a-485b-4601-bb51-8290626868bc" />
       <img width="388" height="228" alt="Tumblr_l_656223052381958" src="https://github.com/user-attachments/assets/425f9280-dd12-4d37-b104-942bb31fd57e" />
-       $\color{#921616}{\textsf{Cuddle+hug freely}}$ <br>
+       $\color{#ffe4ef}{\textsf{Cuddle+hug freely}}$ <br>
        <img width="800" height="456" alt="Tumblr_l_1132292422011720" src="https://github.com/user-attachments/assets/32478976-a261-4c05-8bed-e15f869602cc" />
-       $\color{#132676}{\textsf{Dn copy/cover, pls... meow. }}$ <br>
-       $\color{#921616}{\textsf{Support tier 4 star}}$ <br>
+       $\color{#ffe4ef}{\textsf{Dn copy/cover, pls... meow. }}$ <br>
+       $\color{#ffd5e3}{\textsf{Support tier 4 star}}$ <br>
 
 
 
