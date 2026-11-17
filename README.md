@@ -4,6 +4,7 @@
     <th>
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=#ffe4ef&center=true&vCenter=true&width=1200&lines=I+love+you+forever..." />
+  
    <img width="736" height="736" alt="f5145402e08e868502b6556e51b4d4bd" src="https://github.com/user-attachments/assets/c9499977-936c-44b8-9353-fa05de03fd68" />
       $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
       <br>
@@ -42,4 +43,4 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
 
 <img width="500" height="200" alt="7efa1fb89eab76ff7a0d36490fdfde90" src="https://github.com/user-attachments/assets/4093a30d-ad06-4235-9461-70fc1167d781" />
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=132676&center=true&vCenter=true&width=1200&lines=don't+leave+me+alone...+I+miss+u" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ffd5e3&center=true&vCenter=true&width=1200&lines=don't+leave+me+alone...+I+miss+u" />
