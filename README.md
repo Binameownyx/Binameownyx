@@ -27,7 +27,6 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       $\color{#ffe4ef}{\textsf{Piexmc,harlexmc,jesterxmc,piexharle,binaxmc, harlexbina}}$ <br>
       $\color{#ffe4ef}{\textsf{BASIC DNI CRITERIA.}}$ <br>
       $\color{#ffd5e3}{\textsf{Dnc my skin pls and TYSM <3}}$ <br>
-      <br
       $\color{#ffd5e3}{\textsf{WORK/SCHOOL AND}}$ <br>
       $\color{#ffe4ef}{\textsf{⤥ DNI ⤦}}$
       <br>
