@@ -4,16 +4,17 @@
     
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=921616&center=true&vCenter=true&width=1200&lines=I+love+you+forever..." />
   
-   <img width="736" height="736" alt="Untitled76_20260812220413" src="https://github.com/user-attachments/assets/2e632409-a7eb-4aa7-acef-991cbf79bfd5" />
+   <img width="736" height="736" alt="f5145402e08e868502b6556e51b4d4bd" src="https://github.com/user-attachments/assets/c9499977-936c-44b8-9353-fa05de03fd68" />
+
 
 <table>
   </tr>
     <th>
       $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
       <br>
-      $\color{#921616}{\textsf{˚∘˙Pomni˚∘˙}}$ <br>
+      $\color{#921616}{\textsf{ᨶ႒ᩚnyx🎀}}$ <br>
       $\color{#132676}{\textsf{𝘚𝘩𝘦/𝘏𝘦𝘳}}$ <br>
-      $\color{#921616}{\textsf{Pomni 𝚔𝚒𝚗}}$ <br>
+      $\color{#921616}{\textsf{Columbina tfc kin}}$ <br>
       $\color{#132676}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
       <br>
       $\color{#921616}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
