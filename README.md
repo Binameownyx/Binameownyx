@@ -30,7 +30,7 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       $\color{#ffd5e3}{\textsf{pls read this: be kind! don't copy/cover my skins pls, do not calling me darling or egirl!tysm}}$ <br>
        $\color{#ffe4ef}{\textsf{Cuddle+hug freely}}$ <br>
        <img width="400" height="225" alt="Tumblr_l_1461776169350205" src="https://github.com/user-attachments/assets/39d78f64-972e-41f6-b4d5-d4d1b4ebbd57" />
-       $\color{#ffe4ef}{\textsf{Dn copy/cover, pls... meow. }}$ <bb
+       $\color{#ffe4ef}{\textsf{Dn copy/cover, pls... meow. }}$ <br>
        $\color{#ffd5e3}{\textsf{Support tier 4 star}}$ <b>
        <img width="800" height="488" alt="Tumblr_l_1463230210713368" src="https://github.com/user-attachments/assets/28c0cf3b-44d8-46fc-a6d4-aaf0113182f5" />
 
