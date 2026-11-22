@@ -48,7 +48,7 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
 <summary>oomfs</summary>
 <div align="center">
 <img
-src="https://files.catbox.moe/fdo76r.webp" Width="50%" />
+ />
 pie/cy ,  blay  ,  knox ,  / eliana , alyssa , abel  ,  Ken|
 </details
 </td>
