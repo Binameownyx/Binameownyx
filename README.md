@@ -30,8 +30,7 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       $\color{#ffd5e3}{\textsf{pls read this: be kind! don't copy/cover my skins pls, do not calling me darling or egirl!tysm}}$ <br>
        $\color{#ffe4ef}{\textsf{Cuddle+hug freely}}$ <br>
        <img width="400" height="225" alt="Tumblr_l_1461776169350205" src="https://github.com/user-attachments/assets/39d78f64-972e-41f6-b4d5-d4d1b4ebbd57" />
-       $\color{#ffe4ef}{\textsf{Dn copy/cover, pls... meow. }}$ <br>
-       <img width="80" height="80" alt="Tumblr_l_1132705557206283" src="https://github.com/user-attachments/assets/8d441ede-b6fc-487f-bbc5-548a4db18e5a" />
+       $\color{#ffe4ef}{\textsf{Dn copy/cover, pls... meow. }}$ <bb
        $\color{#ffd5e3}{\textsf{Support tier 4 star}}$ <b>
        <img width="500" height="200" alt="7efa1fb89eab76ff7a0d36490fdfde90" src="https://github.com/user-attachments/assets/4093a30d-ad06-4235-9461-70fc1167d781" />
 
@@ -48,7 +47,7 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
 <div align="center">
 <img
  />
-pie/cy ,  blay  ,  knox ,  / eliana , alyssa , abel  ,  Ken|
+pie/cy ,  blay  ,  knox ,  / eliana , alyssa , abel  ,  Alex  ,  Ken |
 </details
 </td>
 </tr>
