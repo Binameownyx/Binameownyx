@@ -8,7 +8,7 @@
       $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
       $\color{#ffd5e3}{\textsf{ᨶ႒ᩚnyx🎀}}$ <br>
       $\color{#ffe4ef}{\textsf{𝘚𝘩𝘦/𝘏𝘦𝘳}}$ <br>
-      $\color{#ffe4ef}{\textsf{Columbina tfc kin}}$ <br>
+      $\color{#ffe4ef}{\textsf{modoka fictkin/kin}}$ <br>
       $\color{#ffd5e3}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
       <br>
        <img width="880" height="356" alt="Tumblr_l_1462914656387426" src="https://github.com/user-attachments/assets/3c52f992-792c-4182-88c7-2b790cdb5c3b" />
