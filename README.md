@@ -40,3 +40,17 @@ $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
 - - -
  <p align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ffd5e3&center=true&vCenter=true&width=1200&lines=don't+leave+me+alone...+I+miss+u" />
+<br><br>
+<table width="70%">
+<tr>
+<td align="center" height="30">
+<details>
+<summary>oomfs</summary>
+<div align="center">
+<img
+src="https://files.catbox.moe/fdo76r.webp" Width="50%" />
+pie/cy ,  blay  ,  knox ,  / eliana , alyssa , abel  ,  Ken|
+</details
+</td>
+</tr>
+</table>
