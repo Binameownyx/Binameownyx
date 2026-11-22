@@ -11,7 +11,7 @@
       $\color{#ffe4ef}{\textsf{Columbina tfc kin}}$ <br>
       $\color{#ffd5e3}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
       <br>
-       <img width="1280" height="102" alt="Tumblr_l_1131884975827157" src="https://github.com/user-attachments/assets/bc79ef90-5bae-4424-910e-3e06baa376ad" />
+       <img width="880" height="356" alt="Tumblr_l_1462914656387426" src="https://github.com/user-attachments/assets/3c52f992-792c-4182-88c7-2b790cdb5c3b" />
       $\color{#ffe4ef}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
 
 
